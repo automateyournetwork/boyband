@@ -1,5 +1,5 @@
 # BTS Quotes
-## Jin
+## J-Hope
 ### Quote
 #### 14
 ##### If you don’t work hard, there won’t be good results
@@ -27,7 +27,7 @@
 #### 29
 ##### Just because someone else is having a hard time, does not mean your “hard time” is not as difficult. So it is okay to say that you are having a hard time and ask a comfort from people around you.
 ##### BTS 2017 Season's Greeting
-## Jin
+## Jimin
 ### Quote
 #### 11
 ##### I thought the phrase `Love Yourself` would mean extra special to people who are harsh to themselves, like me for instance
@@ -35,7 +35,7 @@
 #### 38
 ##### Silence is golden, don't waste time
 ##### Paper Magazine (2019)
-## Jin
+## Jungkook
 ### Quote
 #### 9
 ##### I'd rather die than to live without passion
@@ -99,7 +99,7 @@
 #### 41
 ##### Maybe I made a mistake yesterday but yesterday's me is still me
 ##### Speech at UN's Generation Unlimited on September 24, 2018
-## RM
+## Suga
 ### Quote
 #### 12
 ##### Love yourself. Love myself. Peace
